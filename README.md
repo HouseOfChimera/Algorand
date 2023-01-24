@@ -1,6 +1,2 @@
 # Algorand
-d
-d
-dd
-
-d
+T.B.A.
